@@ -12,4 +12,4 @@ Skirts
 Trousers
 Tops
 
-This project's entire description can be found at the link above. Feel free to contact me at devika.mishra@dataturks.com for any other details. 
+This project's entire description can be found at the link above. Feel free to contact me at mishra.devika23@gmail.com or devika.mishra@dataturks.com for any other details. 
